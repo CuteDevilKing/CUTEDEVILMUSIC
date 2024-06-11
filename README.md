@@ -25,7 +25,7 @@
 
 <p>
 <a href="https://t.me/PbxString_Bot-Gen"><img src="https://img.shields.io/badge/TG%20String%20Gen%20Bot-blueviolet?style=for-the-badge&logo=appveyor" width="200""/></a>
-<a href="https://t.me/CuteDevil_Music_bot-Gen"><img src="https://img.shields.io/badge/BROKEN%20MUSIC%20Bot-blueviolet?style=for-the-badge&logo=appveyor" width="200""/></a>
+<a href="https://t.me/CuteDevil_Music_bot-Gen"><img src="https://img.shields.io/badge/CUTEDEVIL%20MUSIC%20Bot-blueviolet?style=for-the-badge&logo=appveyor" width="200""/></a>
 <a href="https://t.me/CuteDevil_Music"><img src="https://img.shields.io/badge/DM%20TO%20CUTEDEVIL-blueviolet?style=for-the-badge&logo=appveyor" width="200""/></a>
 
 # 𝗗𝗘𝗣𝗟𝗢𝗬 𝗢𝗡 𝗛𝗘𝗥𝗢𝗞𝗨

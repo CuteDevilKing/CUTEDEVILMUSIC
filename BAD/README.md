@@ -1,7 +1,7 @@
-        「 🕊️⃝‌ٖٖٖٖ ‌ٖٖٖٖٖ🦋𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𝐁α∂ 𝐌υи∂α🌸❤️ᥫ᭡፝֟፝֟ 」
+        「 🕊️⃝‌ٖٖٖٖ ‌ٖٖٖٖٖ🦋𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭𑲭DEVIL🌸❤️ᥫ᭡፝֟፝֟ 」
 </h2>
 
-<p align="center"><a href="https://t.me/II_BAD_BBY_II"><img src="https://graph.org/file/214a0a41f7d75c0f90758.jpg"></a></p>
+<p align="center"><a href="https://t.me/CuteDevil_Music"><img src="https://graph.org/file/214a0a41f7d75c0f90758.jpg"></a></p>
 
 
 ❍══════════════════════════❍
@@ -15,7 +15,7 @@
 
 
 
-2 ✧ ʀᴇᴀʟ ɪᴅ   » @II_BAD_MUNDA_II  🌸
+2 ✧ ʀᴇᴀʟ ɪᴅ   » @CuteDevil_Music  🌸
 
 
 
@@ -33,56 +33,56 @@
 
 
 
-5 ✧ ɢʀᴏᴜᴘ ᴍᴀɴᴀɢᴇᴍᴇɴᴛ » 😈 @BAD_BBY_02_BOT 😈
+5 ✧ ɢʀᴏᴜᴘ ᴍᴀɴᴀɢᴇᴍᴇɴᴛ » 😈 @CuteDevil_Music_Bot 😈
 
 
 
 
 
-6 ✧ ᴍᴜsɪᴄ ʙᴏᴛ » 🎸 @MissBroken_Bot 🎸
+6 ✧ ᴍᴜsɪᴄ ʙᴏᴛ » 🎸 @CuteDevil_Music_Bot 🎸
 
 
 
 
 
-7 ✧ sᴛʀɪɴɢ sᴇssɪᴏɴ ʙᴏᴛ » 💀 @BAD_STRING_SESSION_BOT 💀
+7 ✧ sᴛʀɪɴɢ sᴇssɪᴏɴ ʙᴏᴛ » 💀  💀
 
 
 
 
 
 
-8 ✧  sᴛʀɪɴɢ sᴇssɪᴏɴ ʜᴀᴄᴋ ʙᴏᴛ » 🚬 @BAD_STRING_SESSION_HACK_BOT 😒
+8 ✧  sᴛʀɪɴɢ sᴇssɪᴏɴ ʜᴀᴄᴋ ʙᴏᴛ » 🚬  😒
 
 
 
 
 
-9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @KaurSardarni_bot 🌉
+9 ✧ ᴄʜᴀᴛ ʙᴏᴛ » 🌉 @ 🌉
 
 
 
 
 
-10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 @BEAUTIFUl_DPZ 🥺
+10 ✧ ᴅᴘᴢ ᴄʜᴀɴɴᴇʟ » 🥺 https://t.me/CuteDevil_Music 🥺
 
 
 
 
 
-11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 @FELLINGS_BAD 😈
+11 ✧ ғᴇʟʟɪɴɢ ʙᴀᴅ ᴄʜᴀɴɴᴇʟ » 😈 @CuteDevil_Music_Bot 😈
 
 
 
 
 
-12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 @II_CHAT_HUB_II 😈
+12 ✧ ᴄʜᴀᴛ ɢʀᴏᴜᴘ » 👼 @CuteDevil_Music 😈
 
 
 
 
 
-13 ✧ ᴜᴘᴅᴀᴛᴇ ɢʀᴏᴜᴘ » 👼 @ll_THE_BAD_BOT_ll 😈
+13 ✧ ᴜᴘᴅᴀᴛᴇ ɢʀᴏᴜᴘ » 👼 @CuteDevil_Music 😈
 
 
 
